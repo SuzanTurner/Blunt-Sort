@@ -80,8 +80,8 @@ Got ideas to optimize Blunt Sort? Feel free to contribute!
 
 ## 📩 Contact  
 For queries or collaboration:  
-📧 **Email:** your_email@example.com  
-🔗 **LinkedIn:** [Your LinkedIn](#)  
+📧 **Email:** yadhnikawakde@gmail.com
+🔗 **LinkedIn:** Yadhnika Wakde
 
 ---  
 
